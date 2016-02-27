@@ -1,0 +1,2 @@
+# hello-world
+TRENING CZYNI MISTRZA
